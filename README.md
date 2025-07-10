@@ -22,4 +22,4 @@
 
 立刻收藏本站，加入数十万影迷的行列，在成人羞羞免费平台发现你未曾体验的日本AV高能片库！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben88888 ）</span> 
